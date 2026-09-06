@@ -10,4 +10,4 @@
 
 🍿 Fun facts: we alot
 
-💕 [linktr.ee/up2ins](up2ins @linktree) linktr.ee/up2ins @linktree
+💕 https://linktr.ee/up2ins linktr.ee/up2ins @linktree
